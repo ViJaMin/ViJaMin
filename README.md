@@ -1,0 +1,4 @@
+- HiJaMin I’m @ViJaMin.
+- I’m interested in 3D modeling, music, voice acting, and drinking water.
+- I’m currently learning.
+- I'm a secretive person, so if you do want to reach me...
